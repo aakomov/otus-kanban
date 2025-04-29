@@ -1,6 +1,0 @@
-# otus-kanban
-
-asd
-
-
-asdfffew
